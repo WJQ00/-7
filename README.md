@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @+7
+- 🌱 I’m currently studying at BUPT
+- 📫 You can contact me by email wangjiaqi7@bupt.edu.cn
